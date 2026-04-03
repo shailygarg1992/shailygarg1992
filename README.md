@@ -31,4 +31,4 @@ Before Walmart, I founded **GlobalFair**, a cross-border B2B marketplace for bui
 ## Connect
 
 - [LinkedIn](https://www.linkedin.com/in/shailygarg)
-- garg.shaily92@gmail.com
+- shailygarg1992@gmail.com
