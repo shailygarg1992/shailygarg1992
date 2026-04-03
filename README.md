@@ -1,6 +1,6 @@
 # Hi, I'm Shaily Garg
 
-Principal Product Manager at Walmart | Founder | Forbes 30 Under 30 | IIT Bombay
+Product Manager Lead at Walmart | Founder | Forbes 30 Under 30 | IIT Bombay
 
 ## About Me
 
